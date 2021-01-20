@@ -2,32 +2,3 @@
 
 #  Good morning. Sir / mam.
 
-Thanks for giving me this opportunity.
-
-Myself Sundar, I am 22 years old.
-
-I'm from Coimbatore.
-
-Now talking about my educational qualification:
-
-I have completed my BBA graduation degree in Sri Ramakrishna arts & science college.
-
-And I did my schooling MSSD Higher secondary school.
-
-And I did my secondary school in govt school.
-
-And I still pursuing MBA correspondence in Bharathiyar University.
-
-Coming to my strength.
-
-Self-discipline, positive mindset.
-
-And my short term & long term goal.
-
-My short term goal is to get a job in a reputed company and my long-term is to start my own business.
-
-And coming to my hobbies.
-
-Exercise, learn something about youtube and photoshop.
-
-That's all about me.
